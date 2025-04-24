@@ -6,5 +6,5 @@
 - 📫 How to reach me:  
   - Email: alduraarmanushaufaimron2@gmail.com  
   - LinkedIn: [linkedin.com/in/aldura-imron](https://www.linkedin.com/in/aldura-imron)
-  - Telegram: [@aldur4_imron](https://www.instagram.com/aldur4_imron)  
+  - Instagram: [@aldur4_imron](https://www.instagram.com/aldur4_imron)  
 
